@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Jahongir Karimberdiyev
+- I'm 22 years old
+- I'm from Tashkent, Uzbekistan
+- 👀 I’m interested in computer science, travelling and training gym
